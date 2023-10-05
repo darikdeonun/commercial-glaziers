@@ -1,1 +1,2 @@
-# commercial-glaziers
+# Commercial Glaziers
+In homes, glaziers install or replace glass items including windows, mirrors, shower doors, and bathtub enclosures. On commercial projects, glaziers install items such as room dividers, display cases, and security windows. [Commercial glaziers](https://www.houstonseaofglass.com) is the process of installing window glazing to any commercial property. Almost every commercial property requires windows to some extent, whether it's a small storefront or a multi-story office building, which is where commercial glazing comes into play.
